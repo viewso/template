@@ -1,0 +1,4 @@
+---
+slug: sequin
+name: sequin
+---
