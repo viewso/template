@@ -1,0 +1,4 @@
+---
+slug: cruise
+name: Cruise
+---
