@@ -1,0 +1,4 @@
+---
+slug: fashions
+name: fashions
+---
