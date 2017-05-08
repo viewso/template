@@ -1,0 +1,4 @@
+---
+slug: detailing
+name: detailing
+---
