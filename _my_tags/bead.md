@@ -1,0 +1,4 @@
+---
+slug: bead
+name: bead
+---
