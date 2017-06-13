@@ -1,0 +1,4 @@
+---
+slug: striped
+name: striped
+---

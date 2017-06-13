@@ -1,0 +1,4 @@
+---
+slug: tiered
+name: tiered
+---
