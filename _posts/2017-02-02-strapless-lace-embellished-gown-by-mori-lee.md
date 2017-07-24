@@ -3,7 +3,7 @@ layout: post
 date: '2017-02-02'
 title: "Strapless Lace Embellished Gown by Mori Lee"
 category: Bridesmaid
-tags: ["strapless","evening","unique","lace","beaded"]
+tags: ["lace","brand","unique","prom","dresses"]
 image: http://img.transblink.com/5156-thickbox_default/strapless-lace-embellished-gown-by-mori-lee.jpg
 ---
 Strapless Lace Embellished Gown by Mori Lee
