@@ -3,7 +3,7 @@ layout: post
 date: '2017-03-24'
 title: "Short A-Line Racer Back Beaded Prom Dress"
 category: after prom styles
-tags: ["brand","beaded","evening","prom","back"]
+tags: ["line","prom","beaded","brand","dress"]
 image: http://img.transblink.com/12792-thickbox_default/short-a-line-racer-back-beaded-prom-dress.jpg
 ---
 Short A-Line Racer Back Beaded Prom Dress
