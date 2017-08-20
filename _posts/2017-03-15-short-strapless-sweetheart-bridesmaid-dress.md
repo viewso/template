@@ -3,7 +3,7 @@ layout: post
 date: '2017-03-15'
 title: "Short Strapless Sweetheart Bridesmaid Dress"
 category: Bridesmaid
-tags: ["dresses","bridesmaid","dress","prom","strapless"]
+tags: ["beaded","dresses","brand","sweetheart","bridesmaid"]
 image: http://img.transblink.com/19436-thickbox_default/short-strapless-sweetheart-bridesmaid-dress.jpg
 ---
 Short Strapless Sweetheart Bridesmaid Dress
