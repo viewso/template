@@ -1,0 +1,4 @@
+---
+slug: luxurious
+name: luxurious
+---
