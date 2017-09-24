@@ -1,0 +1,4 @@
+---
+slug: striking
+name: striking
+---
