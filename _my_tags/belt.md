@@ -1,0 +1,4 @@
+---
+slug: belt
+name: belt
+---
