@@ -1,0 +1,4 @@
+---
+slug: panel
+name: panel
+---
