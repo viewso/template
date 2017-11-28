@@ -3,7 +3,7 @@ layout: post
 date: '2017-08-17'
 title: "Mikaella Spring/Summer 2017 2106 Ball Gown V-Neck Appliques Tulle Sleeveless Sweet Ivory Chapel Train Bridal Gown"
 category: Mikaella
-tags: ["beaded","bridal","prom","chapel","tulle"]
+tags: ["spring","chapel","brand","unique","prom"]
 image: http://img.transblink.com/27363-thickbox_default/mikaella-spring-summer-2017-2106-ball-gown-v-neck-appliques-tulle-sleeveless-sweet-ivory-chapel-train-bridal-gown.jpg
 ---
 Mikaella Spring/Summer 2017 2106 Ball Gown V-Neck Appliques Tulle Sleeveless Sweet Ivory Chapel Train Bridal Gown
