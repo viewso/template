@@ -3,7 +3,7 @@ layout: post
 date: '2017-08-15'
 title: "Madison James Floor Length Two Piece Dress"
 category: Prom 2015
-tags: ["length","james","prom","piece","floor"]
+tags: ["beaded","evening","james","length","unique"]
 image: http://img.transblink.com/11138-thickbox_default/madison-james-floor-length-two-piece-dress.jpg
 ---
 Madison James Floor Length Two Piece Dress
