@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-28'
 title: "Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress"
 category: Maggie Sottero
-tags: ["dresses","maggie","beaded","aline","unique"]
+tags: ["wedding","train","sonja","sweet","ivory"]
 image: http://img.transblink.com/27772-thickbox_default/maggie-sottero-fall-winter-2017-sonja-sweet-ivory-chapel-train-aline-cap-sleeves-illusion-tulle-appliques-wedding-dress.jpg
 ---
 Maggie Sottero Fall/Winter 2017 Sonja Sweet Ivory Chapel Train Aline Cap Sleeves Illusion Tulle Appliques Wedding Dress
