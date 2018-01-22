@@ -1,0 +1,4 @@
+---
+slug: gray
+name: gray
+---
