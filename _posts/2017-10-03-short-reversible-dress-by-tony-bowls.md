@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-03'
 title: "Short Reversible Dress by Tony Bowls"
 category: Holiday Dresses
-tags: ["beaded","bowls","reversible","tony","dresses"]
+tags: ["beaded","bowls","dresses","unique","dress"]
 image: http://img.transblink.com/9669-thickbox_default/short-reversible-dress-by-tony-bowls.jpg
 ---
 Short Reversible Dress by Tony Bowls
