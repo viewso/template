@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-02-12'
+title: "Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown"
+category: Eva Lendel
+tags: ["wedding","scoop","unique","sleeveless","prom"]
+image: http://img.transblink.com/30700-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg
+---
+Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown
+
+On Sales: **$399.98**
+<a href="https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30700-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg" alt="Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown 0" /></a>
+<a href="https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30705-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg" alt="Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown 1" /></a>
+<a href="https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30704-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg" alt="Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown 2" /></a>
+<a href="https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30703-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg" alt="Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown 3" /></a>
+<a href="https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30702-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg" alt="Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown 4" /></a>
+<a href="https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30701-thickbox_default/eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.jpg" alt="Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown 5" /></a>
+
+Buy it: [Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown](https://www.transblink.com/en/eva-lendel/10303-eva-lendel-2017-talia-champagne-scoop-neck-ball-gown-split-sleeveless-detachable-satin-embroidery-wedding-gown.html "Eva Lendel 2017 Talia Champagne Scoop Neck Ball Gown Split Sleeveless Detachable Satin Embroidery Wedding Gown")
+
+View more: [Eva Lendel](https://www.transblink.com/en/95-eva-lendel "Eva Lendel")
