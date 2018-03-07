@@ -3,7 +3,7 @@ layout: post
 date: '2017-10-21'
 title: "Ella Rosa Spring/Summer 2017 BE356 Chapel Train Straps Sleeveless Sheath Sweet Ivory Appliques Lace Wedding Gown"
 category: Ella Rosa
-tags: ["sleeveless","rosa","lace","evening","sweet"]
+tags: ["evening","ella","summer","rosa","sheath"]
 image: http://img.transblink.com/26626-thickbox_default/ella-rosa-spring-summer-2017-be356-chapel-train-straps-sleeveless-sheath-sweet-ivory-appliques-lace-wedding-gown.jpg
 ---
 Ella Rosa Spring/Summer 2017 BE356 Chapel Train Straps Sleeveless Sheath Sweet Ivory Appliques Lace Wedding Gown
