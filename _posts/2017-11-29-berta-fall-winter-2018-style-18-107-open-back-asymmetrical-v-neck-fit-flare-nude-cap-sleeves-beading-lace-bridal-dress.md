@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-11-29'
+title: "Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress"
+category: Berta
+tags: ["back","style","berta","nude","beading"]
+image: http://img.transblink.com/30914-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg
+---
+Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress
+
+On Sales: **$548.98**
+<a href="https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30914-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg" alt="Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress 0" /></a>
+<a href="https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30919-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg" alt="Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress 1" /></a>
+<a href="https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30918-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg" alt="Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress 2" /></a>
+<a href="https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30917-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg" alt="Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress 3" /></a>
+<a href="https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30916-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg" alt="Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress 4" /></a>
+<a href="https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30915-thickbox_default/berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.jpg" alt="Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress 5" /></a>
+
+Buy it: [Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress](https://www.transblink.com/en/berta/10361-berta-fall-winter-2018-style-18-107-open-back-asymmetrical-v-neck-fit-flare-nude-cap-sleeves-beading-lace-bridal-dress.html "Berta Fall/Winter 2018 Style 18-107 Open Back Asymmetrical V-Neck Fit & Flare Nude Cap Sleeves Beading Lace Bridal Dress")
+
+View more: [Berta](https://www.transblink.com/en/81-berta "Berta")
