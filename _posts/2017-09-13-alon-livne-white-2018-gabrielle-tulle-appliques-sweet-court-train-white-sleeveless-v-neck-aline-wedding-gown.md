@@ -3,7 +3,7 @@ layout: post
 date: '2017-09-13'
 title: "Alon Livne White 2018 GABRIELLE Tulle Appliques Sweet Court Train White Sleeveless V-Neck Aline Wedding Gown"
 category: Alon Livne
-tags: ["sweet","livne","unique","neck","prom"]
+tags: ["livne","gown","sweet","prom","gabrielle"]
 image: http://img.transblink.com/29196-thickbox_default/alon-livne-white-2018-gabrielle-tulle-appliques-sweet-court-train-white-sleeveless-v-neck-aline-wedding-gown.jpg
 ---
 Alon Livne White 2018 GABRIELLE Tulle Appliques Sweet Court Train White Sleeveless V-Neck Aline Wedding Gown
