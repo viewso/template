@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-12-13'
+title: "David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress"
+category: David Tutera for Mon Cheri
+tags: ["david","brand","dresses","dress","prom"]
+image: http://img.transblink.com/32272-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.jpg
+---
+David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress
+
+On Sales: **$358.98**
+<a href="https://www.transblink.com/en/david-tutera-for-mon-cheri/10890-david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/32272-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress 0" /></a>
+<a href="https://www.transblink.com/en/david-tutera-for-mon-cheri/10890-david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/32276-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress 1" /></a>
+<a href="https://www.transblink.com/en/david-tutera-for-mon-cheri/10890-david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/32275-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress 2" /></a>
+<a href="https://www.transblink.com/en/david-tutera-for-mon-cheri/10890-david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/32274-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress 3" /></a>
+<a href="https://www.transblink.com/en/david-tutera-for-mon-cheri/10890-david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/32273-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress 4" /></a>
+
+Buy it: [David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress](https://www.transblink.com/en/david-tutera-for-mon-cheri/10890-david-tutera-for-mon-cheri-spring-summer-2017-117290-roxanne-beading-lace-chapel-train-blush-fit-flare-sweetheart-bridal-dress.html "David Tutera for Mon Cheri Spring/Summer 2017 117290 Roxanne Beading Lace Chapel Train Blush Fit & Flare Sweetheart Bridal Dress")
+
+View more: [David Tutera for Mon Cheri](https://www.transblink.com/en/98-david-tutera-for-mon-cheri "David Tutera for Mon Cheri")
