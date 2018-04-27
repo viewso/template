@@ -1,0 +1,4 @@
+---
+slug: maxi
+name: maxi
+---
