@@ -1,0 +1,4 @@
+---
+slug: bright
+name: bright
+---
