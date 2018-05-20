@@ -1,0 +1,4 @@
+---
+slug: fortuna
+name: fortuna
+---
