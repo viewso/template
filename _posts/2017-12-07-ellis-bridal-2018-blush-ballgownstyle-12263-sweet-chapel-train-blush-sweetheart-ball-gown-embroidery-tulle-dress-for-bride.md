@@ -3,7 +3,7 @@ layout: post
 date: '2017-12-07'
 title: "Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride"
 category: Ellis Bridal
-tags: ["ballgown","dresses","embroidery","train","sweet"]
+tags: ["train","ballgown","bridal","dresses","ellis"]
 image: http://img.transblink.com/29645-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg
 ---
 Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride
