@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-05-12'
+title: "Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown"
+category: Galia Lahav
+tags: ["vogue","aline","high","evening","lace"]
+image: http://img.transblink.com/30449-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg
+---
+Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown
+
+On Sales: **$558.98**
+<a href="https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30449-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg" alt="Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown 0" /></a>
+<a href="https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30454-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg" alt="Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown 1" /></a>
+<a href="https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30453-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg" alt="Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown 2" /></a>
+<a href="https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30452-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg" alt="Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown 3" /></a>
+<a href="https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30451-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg" alt="Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown 4" /></a>
+<a href="https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/30450-thickbox_default/gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.jpg" alt="Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown 5" /></a>
+
+Buy it: [Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown](https://www.transblink.com/en/galia-lahav/10217-gala-by-galia-lahav-2017-gala-803-chapel-train-nude-vogue-cap-sleeves-aline-high-neck-lace-beading-wedding-gown.html "Gala by Galia Lahav 2017 GALA-803 Chapel Train Nude Vogue Cap Sleeves Aline High Neck Lace Beading Wedding Gown")
+
+View more: [Galia Lahav](https://www.transblink.com/en/90-galia-lahav "Galia Lahav")
