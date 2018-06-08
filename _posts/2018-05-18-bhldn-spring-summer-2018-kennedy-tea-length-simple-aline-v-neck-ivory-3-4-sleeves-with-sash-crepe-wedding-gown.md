@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-05-18'
+title: "BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown"
+category: BHLDN
+tags: ["neck","ivory","gown","unique","with"]
+image: http://img.transblink.com/31297-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg
+---
+BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown
+
+On Sales: **$238.98**
+<a href="https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/31297-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 0" /></a>
+<a href="https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/31302-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 1" /></a>
+<a href="https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/31301-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 2" /></a>
+<a href="https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/31300-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 3" /></a>
+<a href="https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/31299-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 4" /></a>
+<a href="https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.transblink.com/31298-thickbox_default/bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.jpg" alt="BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown 5" /></a>
+
+Buy it: [BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown](https://www.transblink.com/en/bhldn/10490-bhldn-spring-summer-2018-kennedy-tea-length-simple-aline-v-neck-ivory-3-4-sleeves-with-sash-crepe-wedding-gown.html "BHLDN Spring/Summer 2018 Kennedy Tea-Length Simple Aline V-Neck Ivory 3/4 Sleeves with Sash Crepe Wedding Gown")
+
+View more: [BHLDN](https://www.transblink.com/en/94-bhldn "BHLDN")
